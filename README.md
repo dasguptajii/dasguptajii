@@ -1,6 +1,6 @@
-Follow -
+In product management as profession, learning developement to tranistion into Backend Engineering
 
-https://twitter.com/dasguptajii
+DM @Twitter - @dasguptajii
 
 <!---
 dasguptajii/dasguptajii is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
