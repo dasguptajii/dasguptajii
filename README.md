@@ -1,5 +1,4 @@
-In product management as profession, learning developement to tranistion into Backend Engineering
-
+In product management as profession, learning developement to tranistion Tech Roles
 DM @Twitter - @dasguptajii
 
 <!---
