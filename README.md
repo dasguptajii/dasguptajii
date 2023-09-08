@@ -1,4 +1,4 @@
-In product management as profession, learning developement to tranistion Tech Roles
+In product management as profession, learning developement for fun!
 DM @Twitter - @dasguptajii
 
 <!---
